@@ -1,2 +1,7 @@
-# lazypwny751.github.io
-Hacked by zCurq
+# Düzce Üniversitesi Özügr Yazılım Topluluğu
+
+## Misyon ve Vizyon.
+
+## Kurallar.
+
+## Ekip.
